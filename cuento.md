@@ -1,2 +1,2 @@
 Habia una vez...
-Un principe
+Un principe raro
