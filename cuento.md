@@ -1,2 +1,2 @@
 Habia una vez...
-Un principe raro
+Un principe muy apuesto
